@@ -8,7 +8,7 @@
 <a href="https://lesson-1.guru">PLAY UNBLOCKED GAMES 2</a>
 
 <hr>
-<a href="https://lesson-1.guru"><img src="https://clearcache.store/games2.jpg"/></a>
+<a href="https://lesson-1.guru"><img src="https://clearcache.store/games.png"/></a>
 
 
 

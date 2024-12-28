@@ -89,7 +89,7 @@ Here’s a list of **20 popular games** that users often enjoy on UNblocked Game
 
 20. **Stickman Archer**
     - An archery game where you control a stickman archer and try to hit enemies with arrows while avoiding their attacks.
-
+<a href="https://knowt.com/note/cf19e06a-6099-4e41-9f98-7d2b90bf55f1/Unblocked-Games-76-Fun">unblocked games</a>
 ### Conclusion
 
 UNblocked Games 76 offers a vast variety of games that cater to different interests, from fast-paced action games like **Slope** and **Run 3**, to strategic and puzzle games like **Bloxorz** and **Stick War**. While the site is mainly used for entertainment, it's important to use it responsibly and be aware of the risks involved with accessing unblocked game sites.
